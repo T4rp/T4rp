@@ -1,4 +1,4 @@
-🫂 me == "noob"  
+https://t4rp.github.io/index.html
 
 Discord: t4rp  
 BTC: 394PAHMbXX3gTjGZ9QBHdFB5NqfAJDaU8N  
